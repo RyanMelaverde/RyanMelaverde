@@ -6,4 +6,6 @@
 
 ⛰️❄️ Beyond the world of finance and technology, I find solace and inspiration in the serene cold snowy mountains and the invigorating hot sunny beaches and lush outback landscapes. Balancing these diverse landscapes mirrors my approach to problem-solving—embracing varied perspectives to tackle challenges.
 
-🔗 Explore my repositories to delve into my tech endeavors and projects. I'm eager to connect with fellow tech enthusiasts, share insights, and collectively explore the possibilities ahead!
+🔗 Explore my repositories to delve into my tech endeavors and projects at Mela Verde https://github.com/MelaVerdeTrading/.github . I'm eager to connect with fellow tech enthusiasts, share insights, and collectively explore the possibilities ahead!
+
+Contact me a ryan.harris@melaverde.io
