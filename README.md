@@ -2,7 +2,7 @@
 
 🎬 With a rich background in managing and inspiring teams in film and television, I've honed my skills in orchestrating seamless operations. Now, at Mela Verde, I channel that expertise into organizing the automation of business systems, constantly seeking ways to enhance efficiency and elevate performance.
 
-💻 Additionally, as our company expands, I'm delving deeper into the realm of DEX (Decentralized Exchanges), navigating the financial technology space while applying my penchant for innovative solutions.
+💻 Additionally, as our company expands, I'm delving deeper into the realm of DEX (Decentralized Exchanges), navigating the financial technology space while applying my love for innovative solutions.
 
 ⛰️❄️ Beyond the world of finance and technology, I find solace and inspiration in the serene cold snowy mountains and the invigorating hot sunny beaches and lush outback landscapes. Balancing these diverse landscapes mirrors my approach to problem-solving—embracing varied perspectives to tackle challenges.
 
